@@ -4,7 +4,7 @@
 
 **Tel:** +375(29)910-51-65
 
-___Email:___ megamzg66@gmail.com
+___Email:___ megamozg666@gmail.com
 
 __GitHub:__ [Norikl](https://github.com/Norikl)
 
