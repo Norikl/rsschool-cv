@@ -1,2 +1,4 @@
 # rsschool-cv
-https://Norikl.github.io/rsschool-cv/
+https://norikl.github.io/rsschool-cv/cv
+
+https://norikl.github.io/rsschool-cv/
